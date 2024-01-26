@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @UTThub
+- 👀 I’m interested in translating
+- 🌱 I’m currently learning how to be more effective!
+- 💞️ I’m looking to collaborate on translations
+- 📫 How to reach me ... It's simple, send me pm 🙂
+- 😄 Pronouns: They
+- ⚡ Fun fact: I love різати 🐖
